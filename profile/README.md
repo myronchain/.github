@@ -8,5 +8,5 @@
 
 👩‍💻 期待与您共同学习
 
-🧙 我的微信号：sugar-without-coffee 博客：[点击进入](https://zhangzhishun.github.io)
+🧙 我的博客：[点击进入](https://zhangzhishun.github.io)
 
